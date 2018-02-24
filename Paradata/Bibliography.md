@@ -8,6 +8,8 @@ Daimler. (n.d) *Company History: Daimler-Benz in the Nazi Era (1933 - 1945)* Ava
 
 Jackel, S. (2015) *Emily Murphy* Available at: http://www.thecanadianencyclopedia.ca/en/article/emily-murphy/ (Accessed: February 23, 2018)
 
+James Novak, (2017) *Meshmixer Mashup Tutorial.* Available at: https://www.youtube.com/watch?v=bH8Aohzpbgk
+
 Latour, Bruno, and A. Lowe. “The Migration of the Aura – or How to Explore the Original Through Its Facsimiles”, In. T. Bartscherer and R. Coover (editors) Switching Codes. Thinking Through Digital Technology in the Humanities and the Arts, University of Chicago Press pp. 275-297, 2011.
 
 Silverman, E.L. (2016) *Emily Murphy* Available at: http://www.thecanadianencyclopedia.ca/en/article/louise-mckinney/ (Accessed: February 23, 2018)
